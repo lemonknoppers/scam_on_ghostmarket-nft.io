@@ -23,3 +23,15 @@ footer {
     text-align: center;
     margin-top: 20px;
 }
+
+.country {
+    margin: 20px 0;
+}
+
+.country h2 {
+    color: #333;
+}
+
+.phone-number {
+    margin-left: 20px;
+}
