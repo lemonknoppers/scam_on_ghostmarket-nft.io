@@ -1,4 +1,4 @@
-# About scam on the website ghostmarket-nft.io, NFT promotion, deposit, USDC, Binance
+# About SCAM/PHISHING/FRAUD on the website ghostmarket-nft.io, NFT promotion, deposit, USDC, Binance
 
 ## Keyword: ghostmarket-nft.io, NFT promotion, deposit, Binance, USDC/USDT
 
