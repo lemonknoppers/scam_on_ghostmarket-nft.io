@@ -2,6 +2,8 @@
 
 ## Keyword: ghostmarket-nft.io, NFT promotion, deposit, Binance, USDC/USDT
 
+Visit https://lemonknoppers.github.io/scam_on_ghostmarket-nft.io/
+
 1. ghostmarket-nft.io
 2. [ghostmarket-nft.io](https://ghostmarket-nft.io/) is a Phishing website
 
