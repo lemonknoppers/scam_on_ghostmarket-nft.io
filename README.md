@@ -18,5 +18,39 @@
 2. The guy is very likely Chinese with a obvious accent
 3. The website calls api from [meiqia.com](https://www.meiqia.com/), which provides services to many Phishing scam
 
+## Scam number
++49 15218023574
++44 7399626332
++49 15510 354760
++49 1787582518
++49 15510273155
++1(205) 990-2523
++353 899510840
++49 15212606029
++353 899530771
++353 899748227
++1(540) 881-2844
++31 613801057
++49 15213276559
++353 830814271
++44 7830231257
++49 17625383189
++49 17645371791
++353 830296428
++49 1744839973
++49 15510255985
++1(307) 509-5719
++353 830210661
++353 830189066
++33 745713395
++31 613797264
++353 899706391
++49 15218002293
++49 15218002213
++353 830190336
++44 7414723787
+#ghostmarket-nft
+#ghostmarket #NFT #NFTs #promotion  #NFTPromotion #BTC #scam #phishing #USDC #USDT #Binance #crypto
+
 ## To be continued
 Reach out to victims: lemonknoppers@proton.me
