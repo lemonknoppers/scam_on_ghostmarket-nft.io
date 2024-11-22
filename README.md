@@ -6,6 +6,8 @@ Visit https://lemonknoppers.github.io/scam_on_ghostmarket-nft.io/
 
 1. ghostmarket-nft.io
 2. [ghostmarket-nft.io](https://ghostmarket-nft.io/) is a Phishing website
+3. [colville.trade](https://colville.trade/) is a Phishing website
+4. [web.colvillecapital.cfd](https://web.colvillecapital.cfd/) is a Phishing website
 
 ## How it works
 
